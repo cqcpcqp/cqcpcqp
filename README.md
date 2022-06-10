@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cqcpcqp
+- 👀 I’m interested in beat u
+- 🌱 I’m currently learning rrrrrrreactive
+- 💞️ I’m looking to collaborate on salary 
+- 📫 How to reach me cqcpcqp@gmali.com
